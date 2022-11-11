@@ -1,0 +1,1 @@
+# NOV-2022-Salesforce-Marketing-Cloud-Developer-Dumps-Questions-Tips-For-Better-Preparation
